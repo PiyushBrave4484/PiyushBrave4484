@@ -62,7 +62,6 @@ Welcome to my GitHub profile! I'm a **Data Analyst** who thrives on transforming
 
 - 💼 [LinkedIn](http://www.linkedin.com/in/piyushkadam4)
 - 📧 Email: piyushkadam4484@gmail.com
-- 🌐 [Portfolio](https://drive.google.com/drive/folders/1FTv3vRKYFKYXsCxOOWu9IEggvxMX7NiY?usp=sharing)
 
 ---
 
